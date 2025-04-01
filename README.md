@@ -5,7 +5,7 @@
 <br>App下载地址：https://949y3.qzwenam.cc
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>——————————————————-
-<br>撸友福利：https://amga.bzuvwgnx.cc
+<br>撸友福利：https://8294.euotxzg.cc/
 <br>官方推特：https://twitter.com/hlbdy220
 <br>官方电报（telegram）群：https://t.me/heiliao5
 <br>————————————————————-
