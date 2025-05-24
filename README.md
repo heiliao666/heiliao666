@@ -1,6 +1,6 @@
-<br>黑料不打烊最新地址（05/16更新）
+<br>黑料不打烊最新地址（05/24更新）
 
-<br>免翻墙入口：https://cgbdy23.com
+<br>免翻墙入口：https://cgbdy24.com
 <br>永久入口需翻墙：https://hlbdy1.com
 <br>App下载地址：https://y6fj7.zggvuqp.xyz
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
