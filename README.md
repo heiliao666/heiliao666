@@ -1,8 +1,8 @@
-<br>黑料不打烊最新地址（06/06更新）
+<br>黑料不打烊最新地址（06/09更新）
 
 <br>免翻墙入口：https://cgbdy25.com
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://glum5.zktgcvtd.xyz
+<br>App下载地址：https://q8y0f.zlbyrshq.xyz
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>——————————————————-
 <br>撸友福利：https://466a.hhwtpoev.xyz
