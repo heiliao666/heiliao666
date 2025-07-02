@@ -1,11 +1,11 @@
-<br>黑料不打烊最新地址（06/28更新）
+<br>黑料不打烊最新地址（07/02更新）
 
-<br>免翻墙入口：https://bdycg5.com
+<br>免翻墙入口：https://bdycg6.com
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://bf7o2.adndkfv.xyz
+<br>App下载地址：https://bb729.shvwpzsm.com
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>——————————————————-
-<br>撸友福利：https://cca8.qijerwe.xyz
+<br>撸友福利：https://471bc.qlseupyc.cc
 <br>官方推特：https://twitter.com/hlbdy220
 <br>官方电报（telegram）群：https://t.me/heiliao5
 <br>————————————————————-
