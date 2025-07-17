@@ -1,8 +1,8 @@
-<br>黑料不打烊最新地址（07/15更新）
+<br>黑料不打烊最新地址（07/17更新）
 
 <br>免翻墙入口：https://bdycg9.com
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://rkq4y.eygeona.com/
+<br>App下载地址：https://tm6ac.sxasqwhz.cc/
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>——————————————————-
 <br>撸友福利：https://2a54.ksrbifgx.org/
