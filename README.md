@@ -2,7 +2,7 @@
 
 <br>免翻墙入口：https://365bdy1.com
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://tm6ac.lnmerqq.top/
+<br>App下载地址：https://7sad8.juldtstt.com/
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>——————————————————-
 <br>撸友福利：https://2a54.lxrbvbr.top/
