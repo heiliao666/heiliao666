@@ -1,6 +1,6 @@
-<br>黑料不打烊最新地址（08/06更新）
+<br>黑料不打烊最新地址（08/07更新）
 
-<br>免翻墙入口：https://365bdy6.com
+<br>免翻墙入口：https://365bdy7.com
 <br>永久入口需翻墙：https://hlbdy1.com
 <br>App下载地址：https://7sad8.kipautl.com/
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
