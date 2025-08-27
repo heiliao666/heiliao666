@@ -2,7 +2,7 @@
 
 <br>免翻墙入口：https://365bdy12.com/
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://92c.awiwygs.top/
+<br>App下载地址：https://92c.uvudlln.com/
 <br>官方免费Q群：http://x.fyqteha27.com.cn/t/LW5N
 <br>——————————————————-
 <br>撸友福利：https://ca27.wbsgpomn.cc/
