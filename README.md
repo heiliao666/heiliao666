@@ -1,11 +1,11 @@
-<br>黑料不打烊最新地址（09/24更新）
+<br>黑料不打烊最新地址（09/29更新）
 
-<br>免翻墙入口：https://365bdy17.com/
+<br>免翻墙入口：https://365bdy18.com/
 <br>永久入口需翻墙：https://hlbdy1.com
-<br>App下载地址：https://92c.nijixgzx.com/
-<br>官方免费Q群：https://www.html2web.com/view/68afbbe563f4a6cf0951a1d8?id=dzTkywhr
+<br>App下载地址：https://92c.kmpfxnde.cc/
+<br>官方免费Q群：https://npm.onmicrosoft.cn/molehm@1.0.2/hm.html?id=d-ugGnCr
 <br>——————————————————-
-<br>撸友福利：https://ca27.xeapsip.xyz/
+<br>撸友福利：https://ca27.kojmdyxb.com/
 <br>官方推特：https://twitter.com/hlbdy220
 <br>官方电报（telegram）群：https://t.me/heiliao5
 <br>————————————————————-
